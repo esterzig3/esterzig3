@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @esterzig3
-- 👀 I’m interested in madiun
+- 👀 I’m interested in up up yang tepat bagi yang ingin dicapai dalam penelitian yang dilakukan dengan berbagai alasan yang maap kalo mau beli hp adus kali 
